@@ -1,6 +1,6 @@
 This is Ishan the creator of the Ishketch™ NFT collection.
 
-Ishketch™ NFT collection was a group of artwork that made by mix media in the traditional art form.
+Ishketch™ NFT collection is a group of artwork that made by mix media in the traditional art form.
 I will be releasing 3 categories in Ishketch™ NFT Collection.
 
 
